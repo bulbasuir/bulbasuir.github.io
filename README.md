@@ -1,2 +1,2 @@
-# bulbasuir.github.io
-bulbasuir.xyz
+# bulbasuir.xyz
+
